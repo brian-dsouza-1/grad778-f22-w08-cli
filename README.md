@@ -1,3 +1,1 @@
-I am Brian an ME masters student.
-
-My favorite supervillain is The Joker.
+My favorite food is kimchi fried rice.
